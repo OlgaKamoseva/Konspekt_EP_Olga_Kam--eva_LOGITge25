@@ -1,0 +1,2 @@
+# Konspekt_EP_Olga_Kamõševa_LOGITge25
+programmeerimiste aluste konspekt
